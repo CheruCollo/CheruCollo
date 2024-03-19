@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @CheruCollo
 - im a Grapic designer ,self taught typescript writer,freelancer, with a little experience in driving
-- 👀 I’m interested in ... TOURS ,PROGGRAMING,DRIVING
+- 👀 I’m interested in ... TOURS ,PROGRAMING,DRIVING
 - 🌱 I’m currently learning ...GRAPHIC DESIGN
-- 💞️ I’m looking to collaborate on ... PROGGRAMING,TRADING
+- 💞️ I’m looking to collaborate on ... PROGRAMING,TRADING
 - 📫 How to reach me ...PHONE NO. 0743244076
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
